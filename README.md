@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @anand496
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning c++,html
+- 💞️ I’m looking to collaborate on ???
+- 📫 How to reach meinsta~~anand.kushwaha18
+- 😄 Pronouns: nand
+- ⚡ Fun fact: i don't know 
